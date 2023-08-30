@@ -2,3 +2,6 @@
 
 * Amazon
   * [凯 文 归 来](https://www.youtube.com/c/rongnan/videos)
+
+* google
+  * [利用谷歌赚钱的方法2023，2种方法助你每天赚$450 简单赚钱 谷歌新闻赚钱 快速赚钱](https://www.youtube.com/watch?v=JGlaRUvul3c) 
