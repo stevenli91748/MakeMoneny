@@ -13,3 +13,5 @@
   * [广告赚钱](https://www.youtube.com/@RICHER666)
 * 电影赚钱
   * [电影赚钱](https://www.youtube.com/watch?v=rM9mOzdnmzU) 
+* youtube赚钱
+  * [轻松看YouTube视频赚钱，每看35秒赚3美元](https://www.youtube.com/watch?v=vgak35sBS3U) 
