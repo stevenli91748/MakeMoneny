@@ -11,6 +11,7 @@
   * [利用谷歌赚钱的方法2023，2种方法助你每天赚$450 简单赚钱 谷歌新闻赚钱 快速赚钱](https://www.youtube.com/watch?v=JGlaRUvul3c)
 * 广告赚钱
   * [广告赚钱](https://www.youtube.com/@RICHER666)
+  * [刷广告赚钱2023｜点击广告赚钱APP一次赚30 ](https://www.youtube.com/watch?v=9KC6AcLhEYI)
 * 电影赚钱
   * [电影赚钱](https://www.youtube.com/watch?v=rM9mOzdnmzU) 
 * youtube赚钱
