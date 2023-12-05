@@ -5,7 +5,19 @@
 * [赚取现金流的六种方法，帮你渡过经济危机！](https://www.youtube.com/watch?v=RJgcOw20Lx8&list=PLW0YSy-QDAyB8-GBWb5Gthn805mlWFuW3&index=6)
 * [Delon赚钱频道](https://www.youtube.com/@Delon7777)
 
-
+ 
+* 外卖
+  * Uber eat
+  * DoorDash
+  * 饭团
+  * 熊猫 
+* 开车
+  * Uber driver
+  * lyft
+  *  
+* 代购
+  * [instcart]() 
+* 
 * Amazon
   * [凯 文 归 来](https://www.youtube.com/c/rongnan/videos)
 
@@ -17,4 +29,4 @@
 * 电影赚钱
   * [电影赚钱](https://www.youtube.com/watch?v=rM9mOzdnmzU) 
 * youtube赚钱
-  * [轻松看YouTube视频赚钱，每看35秒赚3美元](https://www.youtube.com/watch?v=vgak35sBS3U) 
+  * [轻松看YouTube视频赚钱，每看35秒赚3美元](https://www.youtube.com/watch?v=vgak35sBS3U)
