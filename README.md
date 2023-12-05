@@ -2,7 +2,7 @@
 
 # 教程
 * [创业教程视频](https://www.sinofu.com/)
-* 
+* [赚取现金流的六种方法，帮你渡过经济危机！](https://www.youtube.com/watch?v=RJgcOw20Lx8&list=PLW0YSy-QDAyB8-GBWb5Gthn805mlWFuW3&index=6)
 * [Delon赚钱频道](https://www.youtube.com/@Delon7777)
 
 
