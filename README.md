@@ -33,4 +33,5 @@
   * [电影赚钱](https://www.youtube.com/watch?v=rM9mOzdnmzU) 
 * youtube赚钱
   * [轻松看YouTube视频赚钱，每看35秒赚3美元](https://www.youtube.com/watch?v=vgak35sBS3U)
-  * [听音乐赚钱 2023-2024 轻松月赚 $1500 听歌赚钱app](https://www.youtube.com/watch?v=Uk1jKTJsBJk) 
+  * [听音乐赚钱 2023-2024 轻松月赚 $1500 听歌赚钱app](https://www.youtube.com/watch?v=Uk1jKTJsBJk)
+  * [【听歌赚钱】亲测实战，坚持YouTube听歌赚钱，一天收入638左右](https://www.youtube.com/watch?v=IvMTYIfzsyk)
