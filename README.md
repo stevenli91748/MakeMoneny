@@ -39,4 +39,9 @@
 
 * AI赚钱频道
   * [木子AI研究所](https://www.youtube.com/@muziailab)
-  * [2024最新AI做视频完整教程，不出镜不露脸，AI做奇幻故事讲解视频---littlefish小鱼儿AI技术学堂](https://www.youtube.com/watch?v=OhUZui9aDDs) 
+  * [2024最新AI做视频完整教程，不出镜不露脸，AI做奇幻故事讲解视频---littlefish小鱼儿AI技术学堂](https://www.youtube.com/watch?v=OhUZui9aDDs)
+    * chatGPT账号购买：https://bit.ly/3R71Xuh
+    * Midjourney便宜合租：https://bit.ly/3R71Xuh
+    * Fliki.ai注册链接：https://bit.ly/487Qfqe
+    * mubert 注册链接：https://bit.ly/3QTjYfw
+
