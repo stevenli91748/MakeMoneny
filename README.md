@@ -44,5 +44,6 @@
     * Midjourney便宜合租：https://bit.ly/3R71Xuh
     * Fliki.ai注册链接：https://bit.ly/487Qfqe
     * mubert 注册链接：https://bit.ly/3QTjYfw
- * [E-乐学 elearni](https://www.youtube.com/@elearni) 
+ * [E-乐学 elearni](https://www.youtube.com/@elearni)
+   * [创建超真实的 AI 绝世网红 | AI Instagram 模特 | 分步教程](https://www.youtube.com/watch?v=zHxAQybpybU) 
 
