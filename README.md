@@ -47,3 +47,4 @@
  * [E-乐学 elearni](https://www.youtube.com/@elearni)
    * [创建超真实的 AI 绝世网红 | AI Instagram 模特 | 分步教程](https://www.youtube.com/watch?v=zHxAQybpybU) 
    * [超越现实：Wonder Studio 打造你的科幻世界, 让你的电影梦想成真 - 内测版介绍和基础教程](https://www.youtube.com/watch?v=oPnvTZCbyXQ)
+* [AI 视频换脸！史上最强最快的方法，100%成功，完全免费，无需配置，打开即可使用](https://www.youtube.com/watch?v=nSDz2W7SbOk)
