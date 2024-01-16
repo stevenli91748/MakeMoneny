@@ -46,4 +46,4 @@
     * mubert 注册链接：https://bit.ly/3QTjYfw
  * [E-乐学 elearni](https://www.youtube.com/@elearni)
    * [创建超真实的 AI 绝世网红 | AI Instagram 模特 | 分步教程](https://www.youtube.com/watch?v=zHxAQybpybU) 
-
+   * [超越现实：Wonder Studio 打造你的科幻世界, 让你的电影梦想成真 - 内测版介绍和基础教程](https://www.youtube.com/watch?v=oPnvTZCbyXQ)
