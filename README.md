@@ -36,9 +36,12 @@
   * [听音乐赚钱 2023-2024 轻松月赚 $1500 听歌赚钱app](https://www.youtube.com/watch?v=Uk1jKTJsBJk)
   * [【听歌赚钱】亲测实战，坚持YouTube听歌赚钱，一天收入638左右](https://www.youtube.com/watch?v=IvMTYIfzsyk)
 
+* 网赚项目
+  * [网赚项目|2024最新，3分钟利用USDT赚$200 每天无限制套利的赚钱方法 ](https://www.youtube.com/watch?v=okbNDGEWE0w&list=PLeFiV6PL92RY__Y8IBCoPZWe-OsIvjK4e)  
+  * [2023网赚项目分享---向想在网上赚钱的人分享一些网赚项目，新手赚钱项目，快速赚钱项目](https://www.youtube.com/@zifeng-wang)
 
 * AI赚钱频道
-  * [网赚项目|2024最新，3分钟利用USDT赚$200 每天无限制套利的赚钱方法 ](https://www.youtube.com/watch?v=okbNDGEWE0w&list=PLeFiV6PL92RY__Y8IBCoPZWe-OsIvjK4e) 
+  
   * [木子AI研究所](https://www.youtube.com/@muziailab)
   * [2024最新AI做视频完整教程，不出镜不露脸，AI做奇幻故事讲解视频---littlefish小鱼儿AI技术学堂](https://www.youtube.com/watch?v=OhUZui9aDDs)
     * chatGPT账号购买：https://bit.ly/3R71Xuh
