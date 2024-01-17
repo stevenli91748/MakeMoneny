@@ -39,6 +39,7 @@
 * 网赚项目
   * [网赚项目|2024最新，3分钟利用USDT赚$200 每天无限制套利的赚钱方法 ](https://www.youtube.com/watch?v=okbNDGEWE0w&list=PLeFiV6PL92RY__Y8IBCoPZWe-OsIvjK4e)  
   * [2023网赚项目分享---向想在网上赚钱的人分享一些网赚项目，新手赚钱项目，快速赚钱项目](https://www.youtube.com/@zifeng-wang)
+  * [uncle赚钱](https://www.youtube.com/@dashuwangzhuan410)
 
 * AI赚钱频道
   
