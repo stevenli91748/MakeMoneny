@@ -40,7 +40,7 @@
   * [网赚项目|2024最新，3分钟利用USDT赚$200 每天无限制套利的赚钱方法 ](https://www.youtube.com/watch?v=okbNDGEWE0w&list=PLeFiV6PL92RY__Y8IBCoPZWe-OsIvjK4e)  
   * [2023网赚项目分享---向想在网上赚钱的人分享一些网赚项目，新手赚钱项目，快速赚钱项目](https://www.youtube.com/@zifeng-wang)
   * [uncle赚钱](https://www.youtube.com/@dashuwangzhuan410)
-
+  * [公众号丨优创笔记---各种AI网赚项目实操](https://www.youtube.com/@user-ly7rm4dt9v/videos)
 * AI炒股
   * [投资界ChatGPT揭秘：让你秒变投资高手的AI神器---1](https://www.youtube.com/shorts/WU9yQugHuTk) 
   * [投资界ChatGPT揭秘：让你秒变投资高手的AI神器---2](https://finchat.io/pricing/) 
