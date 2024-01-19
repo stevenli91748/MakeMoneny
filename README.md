@@ -59,3 +59,5 @@
    * [创建超真实的 AI 绝世网红 | AI Instagram 模特 | 分步教程](https://www.youtube.com/watch?v=zHxAQybpybU) 
    * [超越现实：Wonder Studio 打造你的科幻世界, 让你的电影梦想成真 - 内测版介绍和基础教程](https://www.youtube.com/watch?v=oPnvTZCbyXQ)
 * [AI 视频换脸！史上最强最快的方法，100%成功，完全免费，无需配置，打开即可使用](https://www.youtube.com/watch?v=nSDz2W7SbOk)
+* [midjourney如何以图生图，如何让我们的产品穿在模特身上？全过程](https://www.youtube.com/watch?v=HDQGjoynSnE)
+* [人工智能AI落地项目：一键换装，一键换景，只需一键，随心所欲，创意无限](https://www.youtube.com/watch?v=RUs_BGIPrZo)
