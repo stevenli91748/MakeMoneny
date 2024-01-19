@@ -61,3 +61,4 @@
 * [AI 视频换脸！史上最强最快的方法，100%成功，完全免费，无需配置，打开即可使用](https://www.youtube.com/watch?v=nSDz2W7SbOk)
 * [midjourney如何以图生图，如何让我们的产品穿在模特身上？全过程](https://www.youtube.com/watch?v=HDQGjoynSnE)
 * [人工智能AI落地项目：一键换装，一键换景，只需一键，随心所欲，创意无限](https://www.youtube.com/watch?v=RUs_BGIPrZo)
+* [模特失業！全網最強、永久免費的AI模特換衣！100%保留衣服原型，批量生成AI模特！電商福音！](https://www.youtube.com/watch?v=uf2UeMrPKn8)
