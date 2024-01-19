@@ -35,6 +35,8 @@
   * [轻松看YouTube视频赚钱，每看35秒赚3美元](https://www.youtube.com/watch?v=vgak35sBS3U)
   * [听音乐赚钱 2023-2024 轻松月赚 $1500 听歌赚钱app](https://www.youtube.com/watch?v=Uk1jKTJsBJk)
   * [【听歌赚钱】亲测实战，坚持YouTube听歌赚钱，一天收入638左右](https://www.youtube.com/watch?v=IvMTYIfzsyk)
+* tiktok赚钱
+  * [【副业推荐】亲测实战，Ai工具chatgpt帮忙赚钱，一天收益1900+，内卷？不存在的](https://www.youtube.com/watch?v=ejILoO_D6bY) 
 
 * 网赚项目
   * [网赚项目|2024最新，3分钟利用USDT赚$200 每天无限制套利的赚钱方法 ](https://www.youtube.com/watch?v=okbNDGEWE0w&list=PLeFiV6PL92RY__Y8IBCoPZWe-OsIvjK4e)  
