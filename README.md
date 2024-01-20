@@ -43,6 +43,7 @@
   * [重要  2023网赚项目分享---向想在网上赚钱的人分享一些网赚项目，新手赚钱项目，快速赚钱项目](https://www.youtube.com/@zifeng-wang)
   * [uncle赚钱](https://www.youtube.com/@dashuwangzhuan410)
   * [公众号丨优创笔记---各种AI网赚项目实操](https://www.youtube.com/@user-ly7rm4dt9v/videos)
+  * [快速赚钱网赚项目分享](https://www.youtube.com/@user-et7qy3wn1u)
 * AI炒股
   * [投资界ChatGPT揭秘：让你秒变投资高手的AI神器---1](https://www.youtube.com/shorts/WU9yQugHuTk) 
   * [投资界ChatGPT揭秘：让你秒变投资高手的AI神器---2](https://finchat.io/pricing/) 
