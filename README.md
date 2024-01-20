@@ -46,7 +46,7 @@
   * [快速赚钱网赚项目分享](https://www.youtube.com/@user-et7qy3wn1u)
   * [Richer 赚钱](https://www.youtube.com/@RICHER666)
     * [在线工作网站](https://hiresine.com/current-openings/) 
-
+  * [Delon赚钱](https://www.youtube.com/Delon7777)
 
 * AI炒股
   * [投资界ChatGPT揭秘：让你秒变投资高手的AI神器---1](https://www.youtube.com/shorts/WU9yQugHuTk) 
