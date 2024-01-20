@@ -44,6 +44,9 @@
   * [uncle赚钱](https://www.youtube.com/@dashuwangzhuan410)
   * [公众号丨优创笔记---各种AI网赚项目实操](https://www.youtube.com/@user-ly7rm4dt9v/videos)
   * [快速赚钱网赚项目分享](https://www.youtube.com/@user-et7qy3wn1u)
+  * [Richer 赚钱](https://www.youtube.com/@RICHER666)
+
+
 * AI炒股
   * [投资界ChatGPT揭秘：让你秒变投资高手的AI神器---1](https://www.youtube.com/shorts/WU9yQugHuTk) 
   * [投资界ChatGPT揭秘：让你秒变投资高手的AI神器---2](https://finchat.io/pricing/) 
