@@ -45,6 +45,7 @@
   * [公众号丨优创笔记---各种AI网赚项目实操](https://www.youtube.com/@user-ly7rm4dt9v/videos)
   * [快速赚钱网赚项目分享](https://www.youtube.com/@user-et7qy3wn1u)
   * [Richer 赚钱](https://www.youtube.com/@RICHER666)
+    * [在线工作网站](https://hiresine.com/current-openings/) 
 
 
 * AI炒股
