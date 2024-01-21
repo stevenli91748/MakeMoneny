@@ -47,7 +47,7 @@
   * [Richer 赚钱](https://www.youtube.com/@RICHER666)
     * [在线工作网站](https://hiresine.com/current-openings/) 
   * [Delon赚钱](https://www.youtube.com/Delon7777)
-
+  * [小礦工挖挖礦](https://www.youtube.com/@tiny_miner)
 * AI炒股
   * [投资界ChatGPT揭秘：让你秒变投资高手的AI神器---1](https://www.youtube.com/shorts/WU9yQugHuTk) 
   * [投资界ChatGPT揭秘：让你秒变投资高手的AI神器---2](https://finchat.io/pricing/) 
