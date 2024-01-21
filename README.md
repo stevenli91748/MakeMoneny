@@ -49,6 +49,7 @@
   * [Delon赚钱](https://www.youtube.com/Delon7777)
   * [小礦工挖挖礦](https://www.youtube.com/@tiny_miner)
   * [Windy有风](https://www.youtube.com/@Windyyoufeng)
+  * [美国网上赚钱46个途径（附网址）](https://lusongsong.com/reed/10476.html)
 * AI炒股
   * [投资界ChatGPT揭秘：让你秒变投资高手的AI神器---1](https://www.youtube.com/shorts/WU9yQugHuTk) 
   * [投资界ChatGPT揭秘：让你秒变投资高手的AI神器---2](https://finchat.io/pricing/) 
