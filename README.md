@@ -25,7 +25,9 @@
     * [凯 文 归 来](https://www.youtube.com/c/rongnan/videos)
 
 * google
-  * [利用谷歌赚钱的方法2023，2种方法助你每天赚$450 简单赚钱 谷歌新闻赚钱 快速赚钱](https://www.youtube.com/watch?v=JGlaRUvul3c)
+  * 新闻
+    * [利用谷歌赚钱的方法2023，2种方法助你每天赚$450 简单赚钱 谷歌新闻赚钱 快速赚钱](https://www.youtube.com/watch?v=JGlaRUvul3c)
+    * []()
 * 广告赚钱
   * [广告赚钱](https://www.youtube.com/@RICHER666)
   * [刷广告赚钱2023｜点击广告赚钱APP一次赚30 ](https://www.youtube.com/watch?v=9KC6AcLhEYI)
@@ -50,6 +52,9 @@
   * [小礦工挖挖礦](https://www.youtube.com/@tiny_miner)
   * [Windy有风](https://www.youtube.com/@Windyyoufeng)
   * [美国网上赚钱46个途径（附网址）](https://lusongsong.com/reed/10476.html)
+  * 
+
+
 * AI炒股
   * [投资界ChatGPT揭秘：让你秒变投资高手的AI神器---1](https://www.youtube.com/shorts/WU9yQugHuTk) 
   * [投资界ChatGPT揭秘：让你秒变投资高手的AI神器---2](https://finchat.io/pricing/) 
